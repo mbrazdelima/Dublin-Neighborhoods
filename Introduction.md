@@ -1,4 +1,4 @@
-# Ireland
+# Dublin jobs for Brazilian exchange students
 Ireland is one of the most popular countries to exchange for Brazilians. Two advantages of doing exchange in this country are that Irish are very welcoming and exchange students can work during the study period. Therefore, students work to pay their expenses during the course. The government allows you to work up to 20 hours a week during the course period. After the course, you can spend two more months working 40 hours a week.
 Most job opportunities are to work in restaurants, bars, cafeterias and other food establishments. These opportunities are for working as floor staff, bartenders, barbecks, cleaners and others.
 Some things can improve the exchange student experience. Issues such as living close to a region with many job opportunities and knowing where to look for work can help a lot of exchange students.
